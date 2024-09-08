@@ -1,0 +1,1 @@
+Ботаю по https://www.youtube.com/playlist?list=PLqnlz-HutZiRA06Y-LdunLtHN7XwBZgNG.
